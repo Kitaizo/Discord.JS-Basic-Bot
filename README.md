@@ -17,7 +17,7 @@ Bot Cơ Bản!
 
 ***
 
-## [Discord Server 😎](https://discord.com/invite/h597xJvftX) | [Website](UpdateSoon)
+## [Discord Server 😎](https://discord.com/invite/h597xJvftX) | [Website](https://madac.my/images/willupdate.png)
 <a href="https://discord.com/invite/h597xJvftX"></a>
 
 ***
